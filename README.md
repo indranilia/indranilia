@@ -6,4 +6,3 @@
 - 💼 I've worked 3 years in education NGOs in Mongolia before pursuing my current degree.
 - 📫 How to reach me: email me at indranil@uni.minerva.edu or on [Linkedin](https://www.linkedin.com/in/indranil-nyamsuren/)
 - ⚡ Fun fact: I've been to 5/7 continents of the world!
--->
